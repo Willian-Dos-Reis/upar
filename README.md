@@ -1,2 +1,0 @@
-# upar
- upando video on
